@@ -1,2 +1,2 @@
-# The below game are very unique in each and every AI creation. 
+# The below game are very unique in each classification and problem solving. 
 
