@@ -1,2 +1,1 @@
-# The below game are very unique in each classification and problem solving. 
-
+#The games shown aboveare very unique and will appreciate you to boost your problem solving skills.
